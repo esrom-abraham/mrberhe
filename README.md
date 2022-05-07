@@ -1,2 +1,3 @@
 # mrberhe
-hey simon
+hey simon 🥸
+welcome to my page 🍕🎊
